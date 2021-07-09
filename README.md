@@ -11,6 +11,7 @@
 ## 📬 Get in touch
 
 💼 [LinkedIn](https://www.linkedin.com/in/joaaoeu)<br>
+🎥 [YouTube](https://www.youtube.com/joaaoeu)<br>
 📸 [Instagram](https://www.instagram.com/joaaoeu)<br>
 🐦 [Twitter](https://twitter.com/joaaoeu)<br>
 
